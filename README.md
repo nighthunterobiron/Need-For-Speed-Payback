@@ -228,4 +228,4 @@ Need For Speed Payback is offered as a complete free version with all features a
 Get ready to experience the thrill of racing in Need For Speed Payback! Download now and start your adventure today!
 
 ---
-**Last updated:** 2026-10-04 19:00:33 UTC
+**Last updated:** 2026-10-04 22:41:47 UTC
